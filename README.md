@@ -44,9 +44,6 @@
 <br>
 <br>
 
-<div align='center'>
-
-## <b>May peace, mercy and God's blessings be upon you.</b>
 
 </div>
 <br>
